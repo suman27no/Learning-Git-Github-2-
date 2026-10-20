@@ -2,4 +2,4 @@
 
 ## Install
 
-nothing to say man.
+Nothing to say from my side.
